@@ -2,7 +2,7 @@
 STRAWPAGE WIP  !   ! will be done soon : )
 
 Hetalia , ULTRAKILL , Stray (2022)
-<img width="853" height="480" alt="image" src="https://github.com/user-attachments/assets/8cff3a99-16dc-4d85-b46f-457e9ad00c92" />
+<img width="853" height="480" alt="image" src="https://github.com/user-attachments/assets/5f82d27e-d2f7-4f3b-9bc6-82abab423471" />
 
 basic dni , pro / darkship also dni please ! 
 
